@@ -6,6 +6,7 @@
 
 - [My Blog](https://jpacg.me)
 - [E-Mail](mailto:ijpacg_at_gmail_dot_com)
+- [Telegram](https://t.me/jpacg)
 
 **You are probably also looking for...**
 
